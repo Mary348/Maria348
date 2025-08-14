@@ -3,9 +3,3 @@
 * _tenho 15 anos, meu aniversaria é em abril_ 🎂🎊
 * _gostos de artes, por exemplo desenhar, pintar e teatro_ 🖌️
 * _gosto de ver animes, uns dos meus animes é dr. stone_ 🧪🧑‍🔬
-* 
-* 
- 
-  
-
-    
