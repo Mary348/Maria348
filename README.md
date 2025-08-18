@@ -3,4 +3,4 @@
 * _tenho 15 anos, meu aniversaria é em abril_ 🎂🎊
 * _gostos de artes, por exemplo desenhar, pintar e teatro_ 🖌️
 * _gosto de ver animes, uns dos meus animes favoritos é dr. stone_ 🧪🧑‍🔬
-* ![a cartoon character holds a blue bottle in his hand].(https://tenor.com/pt-BR/view/drstone-gif-9741507927031869212)!
+* ![a cartoon character holds a blue bottle in his hand].(https://tenor.com/pt-BR/view/drstone-gif-9741507927031869212)
