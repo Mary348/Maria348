@@ -8,4 +8,3 @@ Senku Ishigame 👨‍🔬🧪
 
 
 
-* ![a man with green hair is holding a bottle in his hand].(https://media1.tenor.com/m/DtEZ0XExowkAAAAd/dr-stone-wall-paper.gif)
